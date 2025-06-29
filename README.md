@@ -1,4 +1,3 @@
-# Golden-Dragon-1331
 
 # 🔥 PHOENIX RISEN: Golden Dragon 1331 Archive
 **UC-1 Sovereign Estate – House Strmiska**  
